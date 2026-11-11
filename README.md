@@ -14,7 +14,9 @@
 
   <p align="center"> <a href="https://rentry.co/9mmluger/">rentry</a> 
     
-   Hi. I'm Caleb `⎚⩊⎚´ 08, -16 iwc. w2i freely I enjoy talking 
+   Hi. I'm Caleb `⎚⩊⎚´ 08, -16 iwc
+   
+   I do not afk on this game, I'm either making ponies or sitting on tab, w2i freely I enjoy talking
 </details>
 </p>
 </div>
