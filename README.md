@@ -12,7 +12,7 @@
  <details>
   <summary>Info</summary>
 
-  <p align="center"> <a href="https://rentry.co/762millimeter">Rentry</a> <a href="https://rentry.co/incelibate">Interests</a>
+  <p align="center"> <a href="https://rentry.co/762millimeter">Rentry</a>   <a href="https://listography.com/crusader?m=0580652416">LISTO</a>
     
    Hi. I'm Caleb `⎚⩊⎚´ 08, -16 iwc
    
