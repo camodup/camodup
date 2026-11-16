@@ -6,13 +6,11 @@
 <img src="https://file.garden/adcsEye89QhXpeJZ/ezgif-3ed2fe267fb42063.gif" width="350">
 </p>
   <div align="center">
-  sign my <a href="https://crusader.atabook.org/">新book</a> for 10 billion dollars
+     <p align="center">   <a href="https://listography.com/crusader?m=0580652416">LISTO</a>
  
  <div align="center">
  <details>
   <summary>Info</summary>
-
-  <p align="center">   <a href="https://listography.com/crusader?m=0580652416">LISTO</a>
     
    Hi. I'm Caleb `⎚⩊⎚´ 08, -16 iwc
    
