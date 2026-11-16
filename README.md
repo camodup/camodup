@@ -6,7 +6,7 @@
 <img src="https://file.garden/adcsEye89QhXpeJZ/ezgif-3ed2fe267fb42063.gif" width="350">
 </p>
   <div align="center">
-  sign my <a href="https://crusader.atabook.org/">新book</a>
+  sign my <a href="https://crusader.atabook.org/">新book</a> for 10 billion dollars
  
  <div align="center">
  <details>
