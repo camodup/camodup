@@ -11,12 +11,9 @@
  <div align="center">
  <details>
   <summary>Info</summary>
-    
-   Hi. I'm Caleb `⎚⩊⎚´ 18, -16 dni
-   
    I do not afk on this game, W2I Freely
    
-   I enjoy talking tho I do not wish to involve myself w chronic ponytowners & any drama. Be normal
+   I enjoy talking tho I do not wish to involve myself w chronic ponytowners & any drama. Hide button is your friend~
 </details>
 </p>
 </div>
