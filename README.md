@@ -6,7 +6,7 @@
 <img src="https://file.garden/adcsEye89QhXpeJZ/ezgif-3ed2fe267fb42063.gif" width="350">
 </p>
   <div align="center">
-     <p align="center">   <a href="https://listography.com/crusader?m=0580652416">LISTO</a>
+     <p align="center">   <a href="https://listography.com/crusader?m=0580652416">LISTO</a> ^_^ Be really mean to me <a href="https://crusader.atabook.org/">HERE</a>
  
  <div align="center">
  <details>
